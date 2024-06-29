@@ -1,0 +1,5 @@
+![Screenshot 2024-06-29 174330](https://github.com/Arvindsaura/NIRVANA-inspiro/assets/148209983/0f6a64f9-2f7d-4ab1-bb2c-5050236720d9)
+![Screenshot 2024-06-29 174341](https://github.com/Arvindsaura/NIRVANA-inspiro/assets/148209983/dc56cd4b-a2b1-46e1-bc59-9865cf55b721)
+![Screenshot 2024-06-29 174351](https://github.com/Arvindsaura/NIRVANA-inspiro/assets/148209983/66a36390-f043-4b05-938d-63c40cb7c14f)
+![Screenshot 2024-06-29 174420](https://github.com/Arvindsaura/NIRVANA-inspiro/assets/148209983/a4bf256e-c24d-433c-9158-36179be7567d)
+![Screenshot 2024-06-29 174435](https://github.com/Arvindsaura/NIRVANA-inspiro/assets/148209983/4450154a-8457-47a2-93b6-17d23def5dec)
